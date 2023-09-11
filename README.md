@@ -1,0 +1,2 @@
+# AIEmergingTech-PartAAssessment
+ 
